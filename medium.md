@@ -1,1 +1,1 @@
-
+At an intermediate level, you should join an Irish language club. [cnag.ie](https://cnag.ie) (Conradh na Gaeilge) have courses that you can take part in. Also, watch some shows on [TG4](https://tg4.ie) to get a better grasp of the language.
