@@ -1,1 +1,1 @@
-
+At an advanced level, you could plan a trip to one of the Gaeltachtaí in Ireland. Most are on the west coast. You could also listen to radio stations such as Raidió Na Life or RTÉ Raidió na Gaeltachta.
