@@ -7,6 +7,6 @@ Click one of the links below to get started.
 
 [Beginner](https://racing5372.github.io/learn-irish/beginner)
 
-[Medium](https://racing5372.github.io/learn-irish/medium)
+[Intermediate](https://racing5372.github.io/learn-irish/intermediate)
 
 [Advanced](https://racing5372.github.io/learn-irish/advanced)
